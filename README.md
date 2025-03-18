@@ -1,0 +1,1 @@
+# gw-pos-privacy-policy
